@@ -1,2 +1,2 @@
-# SSSSSKIIIIIIIIIIINS
+:)
 skins :(
